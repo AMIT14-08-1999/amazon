@@ -20,3 +20,13 @@ If you can interested to download this app.Plz go to this link and download this
 
 
 https://drive.google.com/file/d/1gO5P23NuwDQFPiV9hb0ZCiwHXKmX0RW2/view?usp=sharing
+
+
+
+
+https://user-images.githubusercontent.com/72166353/173173855-55ccc18b-fea1-4418-8e26-815bfd482675.mp4
+
+
+
+https://user-images.githubusercontent.com/72166353/173173859-5355b438-33d1-4257-8a55-24060c0971f6.mp4
+
